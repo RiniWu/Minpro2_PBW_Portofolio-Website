@@ -1,4 +1,4 @@
-# Minpro1_Portofolio Pribadi_Rini Wulandari
+# Minpro2_Portofolio Pribadi_Rini Wulandari
 
 ### Nama: Rini Wulandari
 
